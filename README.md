@@ -1,0 +1,2 @@
+# buddha
+www.dsma.com
